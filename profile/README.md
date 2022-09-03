@@ -4,5 +4,5 @@ this is a new group I have created for coders to find new friends `since coders 
 
 Anyone is allowed to join this group aslong as you don't break any of GitHub's TOS, discriminate or send NSFW || NSFL.
 
-If you wanna join, just hmu on Discord `kitkat#1000`
+If you wanna join, just hmu on Discord `kyatto#2671`
 
